@@ -3,10 +3,7 @@ marcinho doido🥸
 
 ![MessiGIF](https://github.com/user-attachments/assets/c77d7f0f-2817-435c-80d0-6500b54b3058)
 ![WaveAwardGIF](https://github.com/user-attachments/assets/f10aae2f-977e-4883-add9-47b1b062b286)
-MARCINHO DOIDIN
-MARCINHO DOIDIN DO CENTRO
-FI DAS UNHA
-FI DO VAL 
+
 
 
 
